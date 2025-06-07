@@ -1,5 +1,5 @@
-## 💫 About Me:
-Hey, Augustina here! <br>An enthused data analyst.
+
+![Augustina Nyarkoh (2)](https://github.com/user-attachments/assets/a995a249-a8d4-4aca-858a-26ec7d825f04)
 
 
 ## 🌐 Socials:
